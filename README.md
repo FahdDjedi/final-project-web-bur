@@ -5,7 +5,7 @@ meilleures salutations
 merci infiniment 
    cordialement le groupe 54 
    djedi fahd seif eddin belkacem
-   mouazali hachemi rayen
+   mouzali hachemi rayen
    stambouli abde lmouhssine eliesse
    djebbar seddik adel
    mehdi benazza 
